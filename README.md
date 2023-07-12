@@ -1,0 +1,1 @@
+# Acer-Aspire-3-A315-53-34-MU-Hackintosh-Opencore
